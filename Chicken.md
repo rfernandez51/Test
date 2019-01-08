@@ -8,16 +8,12 @@ INGREDIENTS
 
 3 Tbsp olive oil
 1 broiler-fryer chicken, about 2 1/2-3 pounds, cut into serving pieces, or 2 1/2 to 3 pounds of chicken thighs or breasts, bone-in, with skin on, rinsed and patted dry
-
 1/2 cup of flour for dredging
-
 Salt
-
 Freshly ground black pepper
-
 Paprika
+Rice
 
-2 Cups Rice
 2 tablespoons olive oil (can use up to 1/4 cup)
 1 medium yellow onion, chopped
 1 garlic clove, minced
