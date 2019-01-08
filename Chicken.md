@@ -13,7 +13,6 @@ Salt
 Freshly ground black pepper
 Paprika
 2 Cups Rice
-
 2 tablespoons olive oil (can use up to 1/4 cup)
 1 medium yellow onion, chopped
 1 garlic clove, minced
