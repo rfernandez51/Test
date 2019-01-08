@@ -14,11 +14,13 @@ Freshly ground black pepper
 Paprika
 Rice
 
+1 cup white wine
+1 pinch saffron threads
 2 tablespoons olive oil (can use up to 1/4 cup)
 1 medium yellow onion, chopped
 1 garlic clove, minced
 2 cups of medium or long-grain white rice
-3 cups* chicken stock
+2 cups* chicken stock
 1 heaping tablespoon tomato paste or 1 cup of diced fresh or cooked tomatoes, strained
 Pinch of oregano
 1 teaspoon salt
